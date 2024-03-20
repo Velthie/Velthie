@@ -3,8 +3,8 @@
 - ☎️ 776 627 715 | 775 904 735
 - 📧 thiemel@velthie.cz | velner@velthie.cz
 - 🌐 www.velthie.cz
-- ➡️ https://www.facebook.com/velthie.cz
-- ➡️ https://www.instagram.com/velthie_design?igsh=MXQ2MDU5dXlodWVyNw%3D%3D&utm_source=qr
+- https://www.facebook.com/velthie.cz
+- https://www.instagram.com/velthie_design
 
 
 <!---
